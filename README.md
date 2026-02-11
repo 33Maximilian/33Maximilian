@@ -12,7 +12,7 @@
 - 🏎️ 我很喜欢赛车和极限运动！以防你不知道，其实我的ID来自我最喜欢的F1车手Max Verstappen
 - 🎬 我喜欢音乐、美术、电影、旅行
 - ❤️ 我爱我的爸爸妈妈和好朋友
-- 🦁 Never stop，keep pushing the limits
+- 🦁 Never stop，keep pushing the limits. Whatever it takes.
 
 </div>
 
